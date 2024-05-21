@@ -1,1 +1,1 @@
-Opening theory, which encompasses thousands of variations and sub-variations, is a critical aspect of modern chess strategy and preparation.
+Chess originated in ancient India around the 6th century AD, evolving from earlier Indian board games like chaturanga.
