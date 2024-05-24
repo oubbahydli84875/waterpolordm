@@ -1,1 +1,1 @@
-Scrummaging is a key aspect of rugby union, where players from each team bind together and contest for possession of the ball, requiring strength, technique, and coordination.
+Hungary is the most successful nation in Olympic water polo, winning numerous gold medals in both men's and women's competitions.
