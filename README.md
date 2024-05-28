@@ -1,1 +1,1 @@
-Hungary is the most successful nation in Olympic water polo, winning numerous gold medals in both men's and women's competitions.
+The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
