@@ -1,1 +1,1 @@
-The modern rules of water polo were established in Scotland in 1877, with the first official match taking place in London in 1885.
+Water polo requires a combination of swimming speed, ball handling skills, and tactical awareness, with teams employing strategies like man-to-man defense, zone defense, and counterattacks.
