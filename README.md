@@ -1,1 +1,1 @@
-Water polo requires a combination of swimming speed, ball handling skills, and tactical awareness, with teams employing strategies like man-to-man defense, zone defense, and counterattacks.
+The advent of the internet has transformed chess into a global phenomenon, with online platforms offering opportunities for players of all skill levels to compete and learn.
