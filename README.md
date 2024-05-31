@@ -1,1 +1,1 @@
-The advent of the internet has transformed chess into a global phenomenon, with online platforms offering opportunities for players of all skill levels to compete and learn.
+Chess originated in ancient India around the 6th century AD, evolving from earlier Indian board games like chaturanga.
