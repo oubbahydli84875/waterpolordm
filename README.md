@@ -1,1 +1,1 @@
-Algebraic notation is the standard method for recording chess moves, with each square on the board identified by a unique letter and number combination.
+Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.
