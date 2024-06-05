@@ -1,1 +1,1 @@
-Players who commit fouls may receive penalties, such as exclusion from the game for a set period (typically 20 seconds) or a penalty shot awarded to the opposing team.
+Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.
