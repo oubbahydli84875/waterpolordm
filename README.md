@@ -1,1 +1,1 @@
-Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.
+Water polo players wear swim caps and numbered caps to identify their team, with goalkeepers wearing caps of a different color to distinguish their role.
