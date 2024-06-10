@@ -1,1 +1,1 @@
-Hungary is the most successful nation in Olympic water polo, winning numerous gold medals in both men's and women's competitions.
+Water polo requires a combination of swimming speed, ball handling skills, and tactical awareness, with teams employing strategies like man-to-man defense, zone defense, and counterattacks.
