@@ -1,1 +1,1 @@
-Water polo requires a combination of swimming speed, ball handling skills, and tactical awareness, with teams employing strategies like man-to-man defense, zone defense, and counterattacks.
+The knight is the only chess piece that can "jump" over other pieces on the board, moving in an L-shape pattern.
