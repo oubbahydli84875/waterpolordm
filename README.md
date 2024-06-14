@@ -1,1 +1,1 @@
-Famous chess games, such as the Immortal Game and the Evergreen Game, are celebrated for their strategic brilliance and innovative tactics.
+Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
