@@ -1,1 +1,1 @@
-Water polo originated in England in the late 19th century as a form of aquatic rugby, played in rivers and lakes.
+The penalty shot, taken from a designated spot in front of the goal, gives the attacking player a one-on-one opportunity to score against the goalkeeper.
