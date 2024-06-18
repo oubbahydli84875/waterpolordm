@@ -1,1 +1,1 @@
-The penalty shot, taken from a designated spot in front of the goal, gives the attacking player a one-on-one opportunity to score against the goalkeeper.
+Communication among players is essential in water polo, with teams using hand signals, verbal cues, and visual cues to coordinate movements and execute plays effectively.
