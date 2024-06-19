@@ -1,1 +1,1 @@
-The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.
+Algebraic notation is the standard method for recording chess moves, with each square on the board identified by a unique letter and number combination.
