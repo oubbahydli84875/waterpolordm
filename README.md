@@ -1,1 +1,1 @@
-Algebraic notation is the standard method for recording chess moves, with each square on the board identified by a unique letter and number combination.
+Moves are recorded by indicating the starting and ending squares of the moving piece, with additional symbols for captures, checks, and other game annotations.
