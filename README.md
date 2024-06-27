@@ -1,1 +1,1 @@
-Famous chess games, such as the Immortal Game and the Evergreen Game, are celebrated for their strategic brilliance and innovative tactics.
+The HSBC World Rugby Sevens Series is a global circuit of rugby sevens tournaments held in various cities around the world, featuring national teams competing for the series title.
