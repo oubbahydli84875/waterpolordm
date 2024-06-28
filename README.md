@@ -1,1 +1,1 @@
-The HSBC World Rugby Sevens Series is a global circuit of rugby sevens tournaments held in various cities around the world, featuring national teams competing for the series title.
+Moves are recorded by indicating the starting and ending squares of the moving piece, with additional symbols for captures, checks, and other game annotations.
