@@ -1,1 +1,1 @@
-Moves are recorded by indicating the starting and ending squares of the moving piece, with additional symbols for captures, checks, and other game annotations.
+Rugby sevens is a fast-paced and exciting variant of rugby union, featuring seven players per team and shorter match durations, making it a popular format for international tournaments and the Olympic Games.
