@@ -1,1 +1,1 @@
-Rugby sevens is a fast-paced and exciting variant of rugby union, featuring seven players per team and shorter match durations, making it a popular format for international tournaments and the Olympic Games.
+The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
