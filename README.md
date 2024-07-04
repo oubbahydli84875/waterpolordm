@@ -1,1 +1,1 @@
-The haka is a traditional Maori war dance performed by the New Zealand All Blacks before their rugby matches, symbolizing strength, unity, and challenge to their opponents.
+The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.
