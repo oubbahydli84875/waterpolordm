@@ -1,1 +1,1 @@
-The first official World Chess Championship was held in 1886, with Wilhelm Steinitz defeating Johannes Zukertort to become the inaugural champion.
+Water polo is played in a pool with two teams of seven players each, including a goalkeeper, who defend goals located at opposite ends of the pool.
