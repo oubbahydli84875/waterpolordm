@@ -1,1 +1,1 @@
-The Sicilian Defense, the Ruy Lopez, and the Queen's Gambit are among the most popular and well-studied chess openings, each offering unique strategic opportunities.
+The FINA Water Polo World Championships is the premier international tournament for water polo, featuring national teams from around the world competing for the championship title.
