@@ -1,1 +1,1 @@
-The Calcutta Cup is a historic rugby union trophy contested annually between England and Scotland as part of the Six Nations Championship, with origins dating back to 1879.
+Communication among players is essential in water polo, with teams using hand signals, verbal cues, and visual cues to coordinate movements and execute plays effectively.
