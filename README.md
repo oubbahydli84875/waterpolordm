@@ -1,1 +1,1 @@
-Rugby requires a diverse skill set, including running, passing, kicking, tackling, and scrummaging, with players specializing in specific positions based on their strengths and abilities.
+The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
