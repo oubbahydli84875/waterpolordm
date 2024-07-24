@@ -1,1 +1,1 @@
-The United States women's water polo team has also been highly successful, winning multiple Olympic gold medals since the sport was introduced for women in 2000.
+Famous chess games, such as the Immortal Game and the Evergreen Game, are celebrated for their strategic brilliance and innovative tactics.
