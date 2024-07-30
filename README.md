@@ -1,1 +1,1 @@
-The knight is the only chess piece that can "jump" over other pieces on the board, moving in an L-shape pattern.
+The Calcutta Cup is a historic rugby union trophy contested annually between England and Scotland as part of the Six Nations Championship, with origins dating back to 1879.
