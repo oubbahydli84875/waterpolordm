@@ -1,1 +1,1 @@
-The Calcutta Cup is a historic rugby union trophy contested annually between England and Scotland as part of the Six Nations Championship, with origins dating back to 1879.
+Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.
