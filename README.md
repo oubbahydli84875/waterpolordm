@@ -1,1 +1,1 @@
-Chess openings are sequences of moves used to establish control of the board and develop pieces in the early stages of the game.
+Rugby sevens is a fast-paced and exciting variant of rugby union, featuring seven players per team and shorter match durations, making it a popular format for international tournaments and the Olympic Games.
